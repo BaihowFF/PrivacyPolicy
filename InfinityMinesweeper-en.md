@@ -1,4 +1,4 @@
-# Infinity - Privacy Policy
+# Infinity Minesweeper - Privacy Policy
 
 Effective Date: April 17, 2018
 
